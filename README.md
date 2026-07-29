@@ -1,5 +1,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=AdmonishingInstruction&color=green&label=Paperworks)
 
+content://com.android.chrome.FileProvider/images/screenshot/17853238312401206758145.jpg
+
 <!--
 **AdmonishingInstruction/AdmonishingInstruction** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
