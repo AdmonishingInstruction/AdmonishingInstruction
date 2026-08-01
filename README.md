@@ -5,4 +5,4 @@
 " ʙᴀsᴇᴅ ᴏɴ ᴍʏ ᴏʙsᴇʀᴠᴀᴛɪᴏɴs, ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ɪɴғʟɪᴄᴛ ᴛʀᴏᴜʙʟᴇ ᴜᴘᴏɴ ᴛʜᴇᴍsᴇʟᴠᴇs. ʟɪғᴇ ᴀʟʀᴇᴀᴅʏ ʜᴀs ᴇɴᴏᴜɢʜ ʜᴀʀᴅsʜɪᴘs — ɴᴏ ɴᴇᴇᴅ ᴛᴏ ᴀᴅᴅ ᴛᴏ ᴛʜᴇᴍ. "
 ~Alhaitham
 
-◇ Thanks for[ @pt-hall-of-media](https://github.com/pt-hall-of-media) for letting have the title of being PT's Alhaitham. ◇
+◇ PT's Alhaitham title on  [@pt-hall-of-media](https://github.com/pt-hall-of-media) ◇
