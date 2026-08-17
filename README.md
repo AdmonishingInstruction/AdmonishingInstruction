@@ -5,7 +5,7 @@
 " ʙᴀsᴇᴅ ᴏɴ ᴍʏ ᴏʙsᴇʀᴠᴀᴛɪᴏɴs, ᴍᴀɴʏ ᴘᴇᴏᴘʟᴇ ɪɴғʟɪᴄᴛ ᴛʀᴏᴜʙʟᴇ ᴜᴘᴏɴ ᴛʜᴇᴍsᴇʟᴠᴇs. ʟɪғᴇ ᴀʟʀᴇᴀᴅʏ ʜᴀs ᴇɴᴏᴜɢʜ ʜᴀʀᴅsʜɪᴘs — ɴᴏ ɴᴇᴇᴅ ᴛᴏ ᴀᴅᴅ ᴛᴏ ᴛʜᴇᴍ. "
 ~Alhaitham
 
-◇ PT's Alhaitham title on  [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-pf-fame](https://github.com/pt-walk-of-fame) and [@title-town](https://github.com/title-town) ◇
+◇ PT's Alhaitham title on  [@pt-hall-of-media](https://github.com/pt-hall-of-media), [@pt-walk-pf-fame](https://github.com/pt-walk-of-fame), [@title-town](https://github.com/title-town) and [@cosplaytown](https://github.com/cosplaytown) ◇
 
 RBYI or DNIs???
 
